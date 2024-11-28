@@ -58,7 +58,7 @@
 ### 💬 Let's Chat!
 Got a cool project? Found a bug in mine? Want to brainstorm? My inbox is always open!
 
-📩 **Email:** [zainali@example.com](mailto:zainali@example.com)  
+📩 **Email:** [zainali123113@gmail.com](mailto:zainali123113@gmail.com)  
 🌐 **Portfolio:** [zainali.com](https://zainali.com)
 
 ---
